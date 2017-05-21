@@ -17,3 +17,6 @@
 - [recker.ru](http://recker.ru/3) 
 - [arendadorogo.ru](http://arendadorogo.ru/2) 
 - [vkdor.ru](http://vkdor.ru/2) 
+
+> **Юрій** 21.05.17
+	Отличные ссылки, стоит попробовать
